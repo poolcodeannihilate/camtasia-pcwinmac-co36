@@ -1,4 +1,4 @@
-# 
+# Top Camtasia plugins for Mac OS | Native Camtasia plugins for PC Windows. Featuring timeline-editing and motion-graphics — optimized for maximum performance on every platform.
 
 
 
